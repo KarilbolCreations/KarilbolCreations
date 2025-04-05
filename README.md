@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KarilbolCreations
-- 👀 I’m interested in Football, Tech and pooping
+- 👀 I’m interested in Football and Tech
 - 🌱 I’m currently learning idk
 - 💞️ I’m looking to collaborate on Tech Companies
 - 📫 How to reach me ...
